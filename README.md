@@ -6,7 +6,7 @@
 
 팀원: 신지은, 오승옥
 
-최우수상 수상
+해양수산부 장관상(대상, 1위)
 
 ![image](https://github.com/user-attachments/assets/c398a0a4-98e5-4738-933a-54506e7fae84)
 ![image](https://github.com/user-attachments/assets/0c997c9d-8e05-4829-a287-e258d825f5e4)
