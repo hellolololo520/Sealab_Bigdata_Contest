@@ -8,7 +8,6 @@
 
 해양수산부 장관상(대상, 1위)
 
-![image](https://github.com/user-attachments/assets/c398a0a4-98e5-4738-933a-54506e7fae84)
 ![image](https://github.com/user-attachments/assets/0c997c9d-8e05-4829-a287-e258d825f5e4)
 ![image](https://github.com/user-attachments/assets/8a426435-dc80-4b0e-b260-a1856b79217d)
 ![image](https://github.com/user-attachments/assets/52bd4153-8776-4723-9233-855c89fd2be0)
